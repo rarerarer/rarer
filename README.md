@@ -1,3 +1,6 @@
-<p>最新地址：<a href="http://稀有站.xyz/forum.php" target="_blank">www.稀有站.xyz</a></p>
-<p>论坛最新地址：<a href="http://稀有站.xyz/forum.php" target="_blank">稀有站.xyz</a></p>
-</body></html>
+# 更新最新地址
+
+### 点击下方链接查找
+### [irare.xyz](http://irare.xyz)<br> 
+
+请收藏保存本网址：github.com/1XDJ<br> 
