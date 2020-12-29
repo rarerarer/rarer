@@ -3,4 +3,4 @@
 ### 点击下方链接查找
 ### [irare.xyz](http://irare.xyz)<br> 
 
-请收藏保存本网址：github.com/1XDJ<br> 
+请收藏保存本网址：https://github.com/rarerarer/rarer
